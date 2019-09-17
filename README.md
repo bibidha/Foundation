@@ -5,7 +5,7 @@ GLOBAL KNOWLEDGE FOUNDATION (FOUNDATION)
 The foundation is dedicated to fostering and enhancing inclusive and unhindered education in all areas of interest of the human kind.
 It has a sister organization named BIBIDHA INSTITUTE (BIBIDHA INSTITUTE for BUSINESS INSIGHTS through DATA HEURISTIC ANALYSIS) which provides FREE education in classroom and laboratory setting.
 
-Currently these classroom/ lab sessions are available in Mumbai, India region only.Please write to bibidha@bibidha.com for further clarifications and scheduling the classes.
+Currently these classroom/ lab sessions are available in Mumbai, India region only. Please write to bibidha@bibidha.com for further clarifications and scheduling classes.
 
 List of documents which may be of interest to you are as follows:
 
